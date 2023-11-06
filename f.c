@@ -1,1 +1,1 @@
-qq
+qq.com
